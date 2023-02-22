@@ -1,28 +1,30 @@
 # Github
-1º Faça uma descrição de uma pessoa qualquer destacando as suas habilidades e consequentemente os defeitos, porem escreva algo sincero mas ao mesmo tempo maduro.
+1º Faça uma descrição de uma pessoa qualquer destacando as suas habilidades e consequentemente os defeitos, porem escreva algo sincero, mas ao mesmo tempo maduro.
 
-Tema: Ana Karoline gomes, 17 anos, 53kg, 1,50m. 
+Tema: Ana Karoline gomes, 17 anos, 53kg, 1,50m.
 
-Acredito que são poucas as pessoas que se importam e se interesam tanto ao estudo que deixam  para trás felicidades momentaneas para viver algo duradouro e constante futuramente, nao que  voce nao possa aproveitar o momento e ser feliz, mas quando acho para alguem como a ana, vejo no brilho do olhar dela o desejo de saber mais, ela e curiosa o bastante de ir procurar profundamente algo que lhe interresa muito ou algo que ela precisa saber momentaneamente, seja esse o caso ou nao, ai vai suas principais qualidades:
-(Lembrando que ela e so mais uma personagem que a vida pos no caminho alguem que se pode aprender alguma coisa e passar adiante nao que seja alguem realmente que venha ser alguem impactante na minha vida )
+Acredito que são poucas as pessoas que se importam e se interessam tanto ao estudo que deixam para trás felicidades momentâneas para viver algo duradouro e constante futuramente, não que você não possa aproveitar o momento e ser feliz, mas quando acho para alguém como a Ana, vejo no brilho do olhar dela o desejo de saber mais, ela e curiosa o bastante de ir procurar profundamente algo que lhe interessa muito ou algo que ela precisa saber momentaneamente, seja esse o caso ou não, ai vai suas principais qualidades:
+
+(Lembrando que ela e só mais uma personagem que a vida pôs no caminho alguém que se pode aprender alguma coisa e passar adiante não que seja alguém realmente que venha ser alguém impactante na minha vida )
 
 Pontos Fortes:
-Organizada
-Estudiosa
-Simpatica
-Amorosa
+Organizada 
+Estudiosa 
+Simpática 
+Amorosa 
 Sagaz
 
 Pontos Fracos:
-Carente (o Tipico caso do quer mas nao sabe como pedir)
-Sarcastica 
-superficial em conhecimentos gerais
+Carente (o Típico caso do quer, mas não sabe como pedir)
+sarcástica
+superficial em conhecimentos gerais 
 Desatenta 
-Perfeccionista 
+Perfeccionista
 
-bom isso e so uma opniao irrelevante, de alguem totalmente aleatorio, porem sendo uma critica levantada a voce mesmo voce nao sendo especialista no assunto acaba que voce tira tempo pra rever tudo que a pessoa disse e com certeza fazer uma auto-analise se oque ela disse e verdade   nao so dos pontos fracos mas dos pontos fortes e fazer perguntas do tipo: 
+Bom isso e só uma opinião irrelevante, de alguém totalmente aleatório, porem sendo uma crítica levantada a você mesmo você não sendo especialista no assunto acaba que você tira tempo pra rever tudo que a pessoa disse e com certeza fazer uma autoanalise se o que ela disse e verdade não só dos pontos fracos mas dos pontos fortes e fazer perguntas do tipo:
 e assim que as outras pessoas me veem ?
-e essa a priemira impressao que eu quero dar ?
-sera que eu quero ser olhada desse jeito ?
-queo ser lembrada por parente e amigos desse jeito ?
-de qualquer jeito isso e totalmente algo avulso de uma critica, uma opniao que pode ser mudada mais rapido do que foi criada !
+E essa a primeira impressão que eu quero dar ? 
+Será que eu quero ser olhada desse jeito ? 
+Quero ser lembrada por parente e amigos desse jeito ? 
+De qualquer jeito isso e totalmente algo avulso de uma crítica, uma opinião que pode ser mudada mais rápido do que foi criada !
+
