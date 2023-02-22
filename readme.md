@@ -27,5 +27,3 @@ E essa a primeira impressão que eu quero dar ?
 Será que eu quero ser olhada desse jeito ? 
 Quero ser lembrada por parente e amigos desse jeito ? 
 De qualquer jeito isso e totalmente algo avulso de uma crítica, uma opinião que pode ser mudada mais rápido do que foi criada!
-
-# git-new-rpositorio
