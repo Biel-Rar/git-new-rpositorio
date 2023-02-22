@@ -1,5 +1,5 @@
 # Github
-1º Faça uma descrição de uma pessoa qualquer destacando as suas habilidades e consequentemente os defeitos, porem escreva algo sincero, mas ao mesmo tempo maduro.
+# 1º Faça uma descrição de uma pessoa qualquer destacando as suas habilidades e consequentemente os defeitos, porem escreva algo sincero, mas ao mesmo tempo maduro.
 
 Tema: Ana Karoline gomes, 17 anos, 53kg, 1,50m.
 
